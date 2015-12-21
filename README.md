@@ -1,1 +1,1 @@
-# estudamaiscanapi.com.br
+# estudamaisbranquinha.com.br
